@@ -1,4 +1,4 @@
-
+smart Scripts for enter brainrot heads is the best enter brainrot heads Script, featuring teleport and no clip. Safe and powerful for all your needs.
 
 
 
